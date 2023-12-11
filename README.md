@@ -15,9 +15,6 @@
 - ❓ Ask me about anything about something you want ?  
   
 
--   
-  
-
 <br/>  
 
 
